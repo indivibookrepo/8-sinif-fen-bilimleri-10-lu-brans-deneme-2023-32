@@ -1,0 +1,1 @@
+# 8-sinif-fen-bilimleri-10-lu-brans-deneme-2023-32
